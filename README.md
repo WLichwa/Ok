@@ -1,2 +1,2 @@
 # Ok
-Nice
+Zjadłem dzisiaj metal
