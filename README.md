@@ -1,2 +1,2 @@
 # Ok
-Zjadłem dzisiaj metal
+Ja jestem
